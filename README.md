@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnannyaTalukdar
 - 👀 I’m interested in GAME
-- 🌱 I’m currently learning CODING
+- 🌱 I’m currently learning CODE
 - 💞️ I’m looking to collaborate on DON'T KNOW YET
 - 📫 How to reach me THERE IS NO WAY
 - 😄 Pronouns: HER
